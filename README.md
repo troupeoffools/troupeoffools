@@ -9,3 +9,4 @@
 ⚓︎ㅤㅤ
 𖦉occia   ㅤㅤ╱      ㅤㅤ    brant
 ![Image](https://github.com/user-attachments/assets/2642405d-e9ee-450e-b043-7a72d4367405)
+BYE i dont ship them (↑) tgt 
