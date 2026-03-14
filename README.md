@@ -1,8 +1,11 @@
 <div align="center">
 
-<img width="1286" height="736" alt="Image" src="https://github.com/user-attachments/assets/5acec0b1-727d-477b-95e1-a8b17d546098" />
+<img width="3072" height="2304" alt="Image" src="https://github.com/user-attachments/assets/4b493d00-b43e-486e-9573-4314872e7afc" />
+𝒔agoㅤㅤ𓏵ㅤ 𝒔agostic
+
+◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟
 
 
- also roccia and brant !! 
- 
+⚓︎ㅤㅤ
+𖦉occia   ㅤㅤ╱      ㅤㅤ    brant
 ![Image](https://github.com/user-attachments/assets/2642405d-e9ee-450e-b043-7a72d4367405)
